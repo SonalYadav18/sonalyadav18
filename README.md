@@ -124,7 +124,7 @@ I am a **Test Automation Engineer** with over **10 years of experience** in **ma
 
 📩 **Email:** [sonalyadav181991@gmail.com](mailto:sonalyadav181991@gmail.com)  
 
-💼 **LinkedIn:** [linkedin.com/in/sonalyadav](https://linkedin.com/in/sonalyadav)  
+💼 **LinkedIn:** [linkedin.com/in/sonalyadav1991](https://linkedin.com/in/sonalyadav1991)  
  
 ---
  
